@@ -8,7 +8,8 @@ Tengo 4 gatitos rescatados, sus nombres son: Chanel,Amy,Budin y Kitty.
 ![image](https://github.com/user-attachments/assets/7dde8ce9-aa64-4dae-8582-396c12cbc29c)
 ![image](https://github.com/user-attachments/assets/d578f9b2-03c1-4f11-8c72-c1297ac45972)
 ![image](https://github.com/user-attachments/assets/382df401-ee3b-405c-b712-b8e0b7a679f2)
-![image](https://github.com/user-attachments/assets/5a645171-9442-46ac-b1e4-27a5e3ff0786)
+![image](https://github.com/user-attachments/assets/4a82456f-99bb-4a07-86ed-13a54c321720)
+
 
 
 
