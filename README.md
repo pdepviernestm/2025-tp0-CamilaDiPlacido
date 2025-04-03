@@ -10,7 +10,7 @@ Tengo 4 gatitos rescatados, sus nombres son: Chanel,Amy,Budin y Kitty.
 ![image](https://github.com/user-attachments/assets/382df401-ee3b-405c-b712-b8e0b7a679f2)
 ![image](https://github.com/user-attachments/assets/4a82456f-99bb-4a07-86ed-13a54c321720)
 
-
+Me gusta mucho el mundo Marvels, sobre todo guardianes de la galaxia, despues Dr house y Game of thrones creo que fueron las que mas me llegaron.
 
 
 
